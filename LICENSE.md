@@ -1,4 +1,4 @@
-
+Canva for macOS elite Template - AI-assisted design and asset management is the best Canva for macOS template, featuring AI-assisted design and asset management. Safe, efficient,
 
 
 
